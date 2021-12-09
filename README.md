@@ -6,5 +6,5 @@
 
 
 
-Ele ensina a receita de um aliemnto infinito, que fica para sempre no seu organismo, mas que nunca mata a fome.
+Ele ensina a receita de um alimento infinito, que fica para sempre no seu organismo, mas que nunca mata a fome.
 
