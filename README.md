@@ -2,15 +2,11 @@
 
 
 
-​                               Olá, é um livro de receitas!
+​                               Olá, este é um livro especia, pois possui uma única receita!
 
 
 
 
 
-## Strogonoff
-
-
-
-VAI SER LEGA{L}
+## Ele ensina a receita de um aliemnto infinito, que fica para sempre no seu organismo, mas que nunca mata a fome.
 
