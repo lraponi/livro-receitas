@@ -11,19 +11,19 @@
 
 
 
-### Amor
+### - Amor
 
-### Carinho
+### - Carinho
 
-### Dedicaçção
+### - Dedicaçção
 
-### Esforço
+### - Esforço
 
-### Humildade
+### - Humildade
 
-### Persistência
+### - Persistência
 
-### Vontade
+### - Vontade
 
-### Mente aberta
+### - Mente aberta
 
