@@ -1,6 +1,6 @@
 # Livro de Receitas
 
-## Olá, este é um livro especia, pois possui uma única receita!
+## Olá, este é um livro especial, pois possui uma única receita!
 
 
 
